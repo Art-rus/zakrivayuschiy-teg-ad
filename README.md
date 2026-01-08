@@ -1,1 +1,1 @@
-https://github.com/Art-rus/zakrivayuschiy-teg-ad
+https://github.com/Art-rus/zakrivayuschiy-teg-f
